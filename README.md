@@ -1,0 +1,3 @@
+I hate the part of myself that refuses to push onward and live life.
+Despite that I still find that I waste time in fleeting pleasures.
+I hope too change myself through increasing my knowledge...
